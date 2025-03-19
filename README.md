@@ -5,7 +5,8 @@
 - C+H is entiirely fine please bro I am a loner on Ponytown !!
 - I AM NOT THE NUMBER ONE STOMACHBOOK FAN BUT THE SECOND FAN !!
 - I AM THE NUMBER ONE PUBLIC GARDENS FAN !!
-- Please yap to me if you want, always interested in making oomfs and getting into new things:3 
+- Please yap to me if you want, always interested in making oomfs and getting into new things:3
+- PLEASEPLEASEPLEASEPLEASEPLEASEF FRIEND ME IDC ABT RANDOM REQUESTS IF YOU JUST WANNA TALK......
 
 
 `CURRENT INTERESTS`
@@ -14,15 +15,16 @@
 - PHIGHTING
 - ROBLOX MYTHS/ARGS
 - CRK
-- FORSAKEN
+- MARIO KART
 - TRUD
+- DREAM GAME (pls explain it to me im like 2 years old)
 - REGRETEVATOR
 - BEE SWARM SIMULATOR
 - PRESSURE
 - FRUIT JUICE TYCOON: REFRESHED
 - JIM'S COMPUTER
 - BLOCK TALES
-- THE ROBLOX GAME ^_^
+- THE ROBLOX GAME "^_^"
 - LET HIM GO
 
 `COMMISSION INFORMATION`
