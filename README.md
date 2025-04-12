@@ -6,7 +6,7 @@
 - I AM NOT THE NUMBER ONE STOMACHBOOK FAN BUT THE SECOND FAN !!
 - I AM THE NUMBER ONE PUBLIC GARDENS FAN !!
 - Please yap to me if you want, always interested in making oomfs and getting into new things:3
-- PLEASEPLEASEPLEASEPLEASEPLEASEF FRIEND ME IDC ABT RANDOM REQUESTS IF YOU JUST WANNA TALK......
+- Please bro... I'm slow.. I DO T UNDERSTAND TYPING QUIRKS (not being mean just im slow)
 
 
 `CURRENT INTERESTS`
